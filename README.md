@@ -1,1 +1,0 @@
-# alaajerbi.github.io
